@@ -4,3 +4,8 @@ Data to collect:
 
 
 ** By now, just dumb template
+
+My links:
+* alex.shefer.31@gmail.com
+* https://www.linkedin.com/in/aleksandr-shefer-508355231/
+* @alexshefer - telegram
